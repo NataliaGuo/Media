@@ -6,3 +6,5 @@
 [b站](https://github.com/Furiends/Media/blob/main/Resource/用户画像_bilibili_Natalia.xlsx)
 
 
+### 2.素材库和选题库共享文档
+[石墨文档Furiends-Media(https://shimo.im/space/m8AZVGOlWOTGe9Ab)
